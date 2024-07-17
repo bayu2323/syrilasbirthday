@@ -1,2 +1,5 @@
 # syrilasbirthday
-tuku krupuk malah dipeksa jebul bakule lagi nesu ngaturaken sugeng tanggap warsa kagem syrila teman hidupku:)
+minum kopi ga pake gula,
+sambil makan kue bolu
+selamat ulang tahun Syrila,
+lancar kuliahnya dan sehat selalu
